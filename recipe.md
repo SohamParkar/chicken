@@ -1,0 +1,1 @@
+Once you have your chicken marinated, rice and fried onions ready, start by cooking the marinated chicken. Once the chicken is partially cooked, it’s important to layer it with the fried onions, mint and coriander. The onions add sweetness and richness while the herbs add a ton of flavor. This is then layered with rice and then topped finally with soaked saffron and ghee.

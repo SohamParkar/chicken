@@ -1,0 +1,1 @@
+We are using yogurt as a tenderiser, and fried onions (birista), tomato puree, chilli powder, turmeric powder, coriander powder, garam masala and salt to flavor the chicken. It’s important to marinate the chicken for at least two hours or overnight for the maximum flavor. 
